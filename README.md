@@ -1,6 +1,3 @@
-
-# WELCOME TO MY PAGE!
-  
 ### ✨ About me ✨  
 
 + ✧ Name ✧ : Phan Trọng Nhân
